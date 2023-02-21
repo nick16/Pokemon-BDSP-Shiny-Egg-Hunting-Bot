@@ -1,0 +1,1 @@
+# Pokemon-BDSP-Shiny-Egg-Hunting-Bot
